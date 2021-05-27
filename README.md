@@ -1,0 +1,3 @@
+'Dal Baati Choorma' is a traditional delicacy from the state of Rajasthan. It is associated with the festivals of Makar Sankranti and Diwali in the Dhundhand region. It is also prepared on special occasions like marriage ceremonies and housewarming.
+
+Dal Baati is eaten with Choorma popularly in regions of Rajasthan and Haryana. Choorma is a sweet delicacy made of coarsely grounded wheat flour, bajra (millet) flour, or semolina. It is made by grinding the fire-baked or fried dough balls and mixing it with ghee, powdered sugar, and dry fruits.
